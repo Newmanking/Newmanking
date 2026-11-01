@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Newmanking
 - 👀 I’m interested in being a software engineer
-- 🌱 I currently finished school
+- 🌱 I'm currently pursuing my career dreams
 - 💞️ I’m looking to collaborate on making a successful project
 - 📫 How to reach me on 0704486079
 
